@@ -1,6 +1,6 @@
 ### Hi there, I'm faizan - aka [vo1d] 👋
 
-## I'm a Student, code enthusiast, Developer, and Geek!!
+## I'm a code enthusiast, Developer, and Geek!!
 
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with other content creators
